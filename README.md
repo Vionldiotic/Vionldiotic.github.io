@@ -5,4 +5,4 @@
 - Outing with friends
 - Food
 
-![alt text](https://i.kym-cdn.com/entries/icons/facebook/000/039/211/dawg.jpg)
+![alt text](https://i.ytimg.com/vi/AaE7OOSlELw/hqdefault.jpg?sqp=-oaymwEjCNACELwBSFryq4qpAxUIARUAAAAAGAElAADIQj0AgKJDeAE=&rs=AOn4CLC1KDKUN8A79RcUrgowN4WoDEsghg)
