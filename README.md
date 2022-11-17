@@ -5,7 +5,7 @@
 - Outing with friends
 - Food
 
-![Tyrone](https://i.ytimg.com/vi/AaE7OOSlELw/hqdefault.jpg?sqp=-oaymwEjCNACELwBSFryq4qpAxUIARUAAAAAGAElAADIQj0AgKJDeAE=&rs=AOn4CLC1KDKUN8A79RcUrgowN4WoDEsghg)
+![Tyrone](https://i.ytimg.com/vi/iS6pDY_VSRI/maxresdefault.jpg)
 
 
 
