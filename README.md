@@ -10,9 +10,6 @@
 
 
 
-| Monday | Tuesday | Wednesday | Thursday | Friday |
-|--------|---------|-----------|----------|--------|
-|Bulalo  |Laing    |Kare-Kare  |Chicken Curry|ginulay na Santol|
 
 
 
