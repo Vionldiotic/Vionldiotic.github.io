@@ -11,6 +11,7 @@
 
 | Monday | Tuesday| Wednesday| Thursday| Friday|
 |--------|--------|----------|---------|-------|
+| Prayd Chicken| Kare-Kare| Laing| Chicken Curry| Adobo
 
 
 
