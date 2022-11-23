@@ -9,7 +9,8 @@
 
 
 
-
+| Monday | Tuesday| Wednesday| Thursday| Friday|
+|--------|--------|----------|---------|-------|
 
 
 My playlist:
